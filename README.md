@@ -1,1 +1,1 @@
-# Hacked-by-Bintang
+# Hacked
